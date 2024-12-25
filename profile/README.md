@@ -1,1 +1,1 @@
-# Cubesat Polaris 2024-27
+# Cubesat Polaris 2024-27 🚀🌟
